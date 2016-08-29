@@ -16,6 +16,6 @@
 실현될 가능성이 아주 적거나 전혀 없는 헛된 기대나 생각.
 허황된 **꿈**은 얼른 버리는 것이 좋다.
 말단 직원이 하루아침에 사장이 되길 바라는 것은 한낱 **꿈**에 불과하다.
-![사진](https://www.google.co.kr/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwilxpLyseXOAhWFq5QKHTbABUQQjRwIBw&url=https%3A%2F%2Ftwitter.com%2Fgg9fx5&psig=AFQjCNF6bCOCB98A68hYb-egnXgg85QwrA&ust=1472517657647175)
+![사진](https://www.google.co.kr/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwjCxLvEsuXOAhVKlZQKHai9AH4QjRwIBw&url=http%3A%2F%2Fbonlivre.tistory.com%2F719&psig=AFQjCNHNHfPDqtQRbCbOsof5XcDfYU8Ssg&ust=1472517823376906)
 
 [동영상](https://youtu.be/mA-I5IiI29E)
