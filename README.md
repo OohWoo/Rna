@@ -22,6 +22,7 @@
 ![사진](http://www.icytales.com/wp-content/uploads/2016/06/dreamscape.jpg)
 
 [동영상](https://youtu.be/mA-I5IiI29E)
+[동영상![사진](http://cfile28.uf.tistory.com/image/262F28495687D23E16AE72)](https://youtu.be/WfYgbFBFe1E)
 
 #*Dream* 수지,백현
 
