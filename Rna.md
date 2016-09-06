@@ -16,8 +16,8 @@
 ###실현될 가능성이 아주 적거나 전혀 없는 헛된 기대나 생각.
 ###허황된 **꿈**은 얼른 버리는 것이 좋다.
 ###말단 직원이 하루아침에 사장이 되길 바라는 것은 한낱 **꿈**에 불과하다.
-![사진](https://www.google.co.kr/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwiIyPCB8fnOAhUEpZQKHZmbCT4QjRwIBw&url=http%3A%2F%2Fwww.atlascorps.org%2Fblog%2F%3Fp%3D6723&psig=AFQjCNGlv58iktEwQOvxaTjHFBRFRwQYXA&ust=1473221768038530)
-![사진](https://www.google.co.kr/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwj0yI6W8fnOAhWDn5QKHUC7A-4QjRwIBw&url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3DWfYgbFBFe1E&bvm=bv.131783435,d.dGo&psig=AFQjCNH_FKOG0kWGINd5tCqvKWylehvdYA&ust=1473221834190582)
+![사진](http://pastors.com/wp-content/uploads/2016/04/Dream.jpg)
+![사진](http://www.icytales.com/wp-content/uploads/2016/06/dreamscape.jpg)
 
 [동영상](https://youtu.be/mA-I5IiI29E)
 
